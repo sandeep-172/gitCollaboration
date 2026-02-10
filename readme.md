@@ -6,3 +6,6 @@
 
 
 # how to became good skill full person
+
+# hi phani ekkada estunnav 
+# anta kusalamena
